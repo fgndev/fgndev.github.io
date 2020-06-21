@@ -11,3 +11,10 @@ indem sie vorgibt von ihrem Mann verlassen worden zu sein.
 * loves dancing
 * lives on her suggar daddies
 * age unknown
+
+Cordula Grün, asked about the white, powderish residue on her
+upper lip after leaving the female's toilet in one of Munich's
+discotheques:
+
+> Ran into the snow plower, babe. What a hell of a job.
+> Works his arse off all night long so we can make it home safe.
